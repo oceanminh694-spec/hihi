@@ -1,1 +1,3 @@
-le quang minh 119218
+Lê Quang Minh
+119218
+CNT67NC
